@@ -1,3 +1,3 @@
 # Hello
-### This is a new Repositori about "BASH"
+### This is a new Repository about "BASH"
 ##### Здесь будут мои проекты:
