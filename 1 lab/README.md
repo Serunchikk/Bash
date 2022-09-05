@@ -4,8 +4,7 @@
 
 ### Решение
 
-https://ibb.co/WH37Qy1
-
+<a href="https://ibb.co/WH37Qy1"><img src="https://i.ibb.co/QJchZNG/2022-09-05-14-47-18.png" alt="2022-09-05-14-47-18" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'>
 
 ### Задание 3
 
@@ -13,7 +12,7 @@ https://ibb.co/WH37Qy1
 
 ### Решение
 
-https://ibb.co/JCVQrjy
+<a href="https://ibb.co/JCVQrjy"><img src="https://i.ibb.co/hCbf2FZ/2022-09-05-14-50-06.png" alt="2022-09-05-14-50-06" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'>
 
 
 ### Задание 4
@@ -22,7 +21,7 @@ https://ibb.co/JCVQrjy
 
 ### Решение
 
-https://ibb.co/BPfFhG1
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/W3Hjr0T/2022-09-05-14-52-57.png" alt="2022-09-05-14-52-57" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'>
 
 
 ### Задание 4
@@ -31,4 +30,4 @@ https://ibb.co/BPfFhG1
 
 ### Решение
 
-https://ibb.co/B4jhqbX
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/6vbKgz3/2022-09-05-14-54-53.png" alt="2022-09-05-14-54-53" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'>как изменить формат фото на jpg</a><br />
