@@ -30,4 +30,4 @@
 
 ### Решение
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/6vbKgz3/2022-09-05-14-54-53.png" alt="2022-09-05-14-54-53" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/nMz1mfK/2022-09-05-14-54-53.png" alt="2022-09-05-14-54-53" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>
